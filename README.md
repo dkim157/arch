@@ -1,1 +1,1 @@
-Arch Rice Files
+Arch Rice Wallpapers
